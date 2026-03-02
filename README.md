@@ -1,16 +1,14 @@
-## Hi there 👋
+**📺最新👀入口：https://camnoragen.github.io**
 
-<!--
-**camnoragen/camnoragen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+　此言听罢，朱勇突然有一种醍醐灌顶的感觉，身躯一颤：“哎呀，大哥不提醒，俺竟没想明白。对呀，这家都是俺的，倒是俺那爹……成日乱花银子，前日还花了一百多两银子去买了一柄好马呢，这败家玩意，他这是在花俺的钱，败俺的家啊。”
+　　张安世安慰他：“算了，谁家不会出一个败家爷们呢，你就想开一些，就当你爹不懂事吧。”
+　　朱勇道：“现在想来……俺便有些咽不下这口气了，寻个时候，非要狠狠训斥他一通才好，张大哥说的对，俺自己的银子，倘若不花，岂不都便宜俺爹了？回头我去问俺娘，叫她拿银子来。”
+　　张軏在一旁听得目瞪口呆，他觉得哪里不对，可细细一想，道理似乎就是这个道理。
+　　三人正说着，突然有一个少年匆匆进入了课堂，惊呼道：“先生来了，先生来了……”
+　　大家并不怕胡俨，可这少年一脸骇然的样子，却让人觉得奇怪，先生来就来了嘛，为何吓成这个样子？
+　　却在此时，课堂外走进一个人来。
+　　只是……不是胡俨。
+　　而是一个穿着黑色袈裟的老和尚。
+　　老和尚一出现，方才还神气十足的朱勇、张軏二人，瞬间垂下头去，竟好像犯错的孩子，大气不敢出。
+　　其他的少年，也一个个像老鼠见了猫似的。
+　　老和尚正是姚广孝。
